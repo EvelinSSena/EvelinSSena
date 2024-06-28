@@ -4,7 +4,7 @@
 - 💞️ Procuro colaborar em qualquer tipo de projeto desde que estaja dentro dos meus conhecimentos
 - 📫 Como entrar em contato comigo pelo meu Linkedin, Instagram ou este email: evelin.carolina.es@gmail.com
 - 😄 Pronomes: Ela/Dela
-- ⚡ Curiosidade: Se você gosta de filmes com carros ou um bom anime de um pirata de borracha seremos amigos!
+- ⚡ Curiosidade: Gosto muito de aprimorar meus conhecimentos sempre fazendo novos cursos.
 
 <!---
 EvelinSSena/EvelinSSena is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
